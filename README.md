@@ -4,7 +4,7 @@ Olá Bem Vindo ao meu Livro de Receitas:fire:
 
 - Pizza
 
-- Pavê
+- Pavê ou pa come
 
   ​
 
